@@ -5,7 +5,7 @@
 
 
 Here I am *Sejal Ghate* in America. 
-**It definately feels good!**
+**It definitely feels good!**
 
 
 - This is
